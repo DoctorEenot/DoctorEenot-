@@ -1,5 +1,5 @@
 # DoctorEenot
-I write code, and build circuits.
+I write code, build circuits and drink coffee.
 
 I can write pretty much everything, if I have enough coffee.
 
