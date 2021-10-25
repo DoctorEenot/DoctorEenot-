@@ -10,3 +10,5 @@ I write code
 My -'s:
 
 Coffeine addiction
+
+My Discord: YeahNotSewerS̷̴̷i̸̶̸d̸̶̶e̸̴̸#6747
